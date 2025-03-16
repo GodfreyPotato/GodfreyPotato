@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Godfrey Javier
+- 👀 I’m interested in anything about tech
+- 🌱 I’m currently studying at PSU-UC
+- 💞️ I’m looking to collaborate on anything about tech
+- 📫 How to reach me: FB - Godfrey Javier
+- 😄 Pronouns: ro/bot
+- ⚡ Fun fact: I love coding!
